@@ -1,0 +1,1 @@
+# bidget_privacy_policy

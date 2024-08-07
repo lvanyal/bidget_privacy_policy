@@ -1,5 +1,4 @@
 
-Sure! Here's the privacy policy in Markdown format with the current date:
 
 Privacy Policy for Bidget: Budget & Expenses
 Effective Date: August 3, 2024
